@@ -1,2 +1,1 @@
-Gunz n software
 
